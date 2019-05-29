@@ -32,4 +32,4 @@
 + 圣灵的果子: [加5.22](https://www.biblegateway.com/passage/?search=加5.22&version=CUVMPT)
 + 传福音的果子: [徒1.8](https://www.biblegateway.com/passage/?search=徒1.8&version=CUVMPT)
 
-+ [结果子的秘诀] [约15.5, 12.24](https://www.biblegateway.com/passage/?search=约15.5,12.24&version=CUVMPT)
++ [**结果子的秘诀**] [约15.5, 12.24](https://www.biblegateway.com/passage/?search=约15.5,12.24&version=CUVMPT)
